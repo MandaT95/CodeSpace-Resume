@@ -1,2 +1,0 @@
-# CodeSpace-Resume
-Digital
